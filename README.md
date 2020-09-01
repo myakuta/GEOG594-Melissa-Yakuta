@@ -1,4 +1,4 @@
-# GEOG594-Melissa-Yakuta
+# *GEOG594-Melissa-Yakuta*
 
 ## Melissa Yakuta 
 https://drive.google.com/drive/folders/1Dcw4J-b0028SOuesbtHqokn_t63bEaeo 
